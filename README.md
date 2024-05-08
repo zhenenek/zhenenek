@@ -10,3 +10,7 @@
 Слушаю на репите этот нереальный диджей сет ------------ https://www.youtube.com/watch?v=0Pix9E3605A ------------ nasrat
 
 #Музыка #Самокат #Python #Помидоры #Технологии #Почка #Квадрат #Будькрутым
+
+
+![image](https://github.com/zhenenek/zhenenek/assets/166150043/4a9db594-f57c-4828-afbb-10482767e431)
+
